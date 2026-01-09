@@ -1,1 +1,1 @@
-diagnosed with severe depression by psychiatrist , iwec
+diagnosed with severe depression by qualified psychiatrist, iwec.
