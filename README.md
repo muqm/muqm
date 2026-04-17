@@ -1,3 +1,3 @@
-diagnosed with severe depression by qualified psychiatrist, iwec. 
+iwec. 
 
 always offtab or afk, VERY late reps.
